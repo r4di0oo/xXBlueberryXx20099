@@ -1,5 +1,9 @@
 <div align=center>
 
+  <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/cfb906f1-6c00-4b16-862e-693ef622b39a" />
+
+
+
 # $${\color{#6986c2} . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. }$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=264585&width=435&lines=%F0%93%82%83%F0%93%8F%B8%F0%93%88%92%E2%80%AA%E2%80%AA%E3%82%9BMeet+me+in+outer+space+..+%E3%82%9B;+%F0%93%88%92%F0%93%8F%B8%E2%80%AA%E2%80%AA%F0%93%82%83%E3%82%9BI+will+hold+you+close+.+%E3%82%9B)](https://git.io/typing-svg)
@@ -22,6 +26,10 @@ $${\color{#112b61} ˖᯽ ݁˖ \space name \space ! \space ᯓ★}$$
 $${\color{#264585FF} ⊱ ۫ ׅ ✧ \space prn \space / \space prn \space :: \space prn \space / \space prn \space ⊹ ࣪ ˖ }$$
 
 $${\color{#3d60a8} ๋ ࣭ ⭑ \space txt \space txt \space txt \space txt \space txt \space txt \space txt \space ༉‧₊˚. }$$
+
+
+<img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/7e9e8a97-c381-4623-bc07-fc0d793cfc7f" />
+
 
 
 
